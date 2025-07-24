@@ -11,4 +11,4 @@ With over 7 years of experience across Southeast Asia and Europe, I’ve built a
 - Digital Marketing and Content Strategies
 
 ## Contact
-You can reach me at [LinkedIn](www.linkedin.com/in/ayupermatasarib) or [GitHub]([https://github.com/username](https://github.com/ayubamb).
+You can reach me at [LinkedIn](www.linkedin.com/in/ayupermatasarib) or [GitHub]([https://github.com/username](https://github.com/ayubamb)
